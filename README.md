@@ -1,2 +1,3 @@
 # Tp9
-[Uploading Tp 9.pdf…]()
+
+[Tp 9.pdf](https://github.com/user-attachments/files/25324958/Tp.9.pdf)
